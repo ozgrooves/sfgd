@@ -24,7 +24,7 @@
 
 ----
 
-# OLD LIST
+# Alte Listen
 
 ## George Davis
 
