@@ -1,4 +1,30 @@
-# Songvorschläge
+# George Davis & Slick Footwork
+
+# Vorbereiten für nächste Probe
+
+* Everybody loves the sunshine [link](https://www.youtube.com/watch?v=SSBWiFGzsyU)
+* Comin home [link](https://www.youtube.com/watch?v=i7OJwGMeEKk)
+* Use me [link](https://www.youtube.com/watch?v=NuYDKzky4z0)
+* Whats going on [link](https://youtu.be/xBvnBzjLJsc)
+* Super bad [link](https://www.youtube.com/watch?v=nftVmSj6cCU)
+* I dont know what it is [link](https://www.youtube.com/watch?v=0gczZIwDMJY)
+
+# Weitere Voschläge
+
+* Too high [link](https://www.youtube.com/watch?v=q8dK0iEzi1M)
+* Lady day [link](https://youtu.be/7aRNUsmfeck)
+* Feel like making love [link](https://www.youtube.com/watch?v=SMuMMhfHaNw)
+* Cold sweat [link](https://www.youtube.com/watch?v=rvaTrYxd0GU)
+* Move on up [link](https://www.youtube.com/watch?v=A9RMr9KuVZo)
+* Stuff [link](https://www.youtube.com/watch?v=Ow5OBldDL7c)
+* Let a woman be [link](https://www.youtube.com/watch?v=Xjx2zb3nZBg)
+* We got more soul [link](https://www.youtube.com/watch?v=QZ9GrR5To6s)
+* Yes we can [link](https://www.youtube.com/watch?v=D_-sxuwmxxA)
+* Summer breeze [link](https://www.youtube.com/watch?v=Vm1fBzWoPFw)
+
+----
+
+# OLD LIST
 
 ## George Davis
 
@@ -54,7 +80,7 @@
 * You Are My Love [link](https://www.youtube.com/watch?v=tT87t6bAL34)
 
 ### Electro Deluxe 
-* comin home [link](https://www.youtube.com/watch?v=i7OJwGMeEKk)
+* Comin home [link](https://www.youtube.com/watch?v=i7OJwGMeEKk)
 
 ## Slick Footwork
 
